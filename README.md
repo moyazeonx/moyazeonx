@@ -4,4 +4,4 @@
   
 <img width="500" height="500" alt="Image" src="https://github.com/user-attachments/assets/ad335a15-820e-4f40-b509-76c361d68902" />
 
-made by @D0NQUlX0TE 
+𝚖𝚊𝚍𝚎 𝚋𝚢 @𝗗𝟬𝗡𝗤𝗨𝗹𝗫𝟬𝗧𝗘 
